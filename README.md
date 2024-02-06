@@ -1,5 +1,8 @@
 ### Hi there 👋
-
+### 🧐 My life motto: Always be interested in the unknown.
+### 🌱 I’m currently learning things that interest me.
+### 💬 I am a 🏀 lover and a 🎮 lover.
+### 📫 How to reach me: 2810858275@qq.com
 <!--
 **wrxhardworking/wrxhardworking** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
