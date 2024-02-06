@@ -1,4 +1,4 @@
-### Hi there 👋
+# Look there 👋
 ## 🧐 My life motto: Always be interested in the unknown.
 ## 🌱 I’m currently learning things that interest me.
 ## 💬 I am a 🏀 lover and a 🎮 lover.
